@@ -14,5 +14,7 @@ Support
 -------
 
 - gmail- wahdat.kashmiri@gmail.com
+Twitter- @WahdatKashmiri
+facebook- wahdat kashmiri
 
 
